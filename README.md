@@ -1,4 +1,6 @@
-## Hi there 👋
+https://www.linkedin.com/in/ryan-lee-5b1b71323
+
+rclee13@icloud.com
 
 <!--
 **ryl2005/ryl2005** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
