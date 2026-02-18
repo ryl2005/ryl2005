@@ -1,4 +1,4 @@
-https://www.linkedin.com/in/ryan-lee-5b1b71323
+https://www.linkedin.com/in/ryanchristopherlee05
 
 rclee13@icloud.com
 
